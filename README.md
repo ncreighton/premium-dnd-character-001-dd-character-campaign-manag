@@ -1,0 +1,2 @@
+# premium-dnd-character-001-dd-character-campaign-manag
+Stop juggling five different apps for your D&amp;D campaign. This Notion template consolidates your entire tabletop experience into one living, breathing hub where character sheets, campaign journals, and session logs evolve together.  Eliminate the chaos of scattered character sheets, forgotten plot threads, and mismatched notes. This template gives y
